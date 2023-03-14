@@ -1,4 +1,3 @@
-#Privacy Policy
 HANSOLO built the 9 Masks of Fire Spins app as a Free app. This SERVICE is provided by HANSOLO at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
